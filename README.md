@@ -5,4 +5,3 @@ En morgen hørte han en merkelig lyd utenfor vinduet.
 Han bestemte seg for å gå ut og undersøke hvor lyden kom fra.
 Og han ser ut av vinduer og sanger dårlige musikk.
 Plutselig den lyden går budd nå han sanger.
-
