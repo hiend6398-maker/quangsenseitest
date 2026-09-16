@@ -10,3 +10,4 @@ Plutselig den lyden går budd nå han sanger.
 Så han går ut av huset til å følge den lyden i skogen.
 hiiiiiiiiiiiiiiiiiiiiii
 Hello quang
+Hello world!
