@@ -4,4 +4,5 @@ Han bodde i et lite slott langt inne i skogen.
 En morgen hørte han en merkelig lyd utenfor vinduet.
 Han bestemte seg for å gå ut og undersøke hvor lyden kom fra.
 Og han ser ut av vinduer og sanger dårlige musikk.
-
+Plutselig sluttet lyden, og han hørte en merkelig sang
+Ridderen fulgte lyden gjennom skogen og kom til en liten lysning
