@@ -8,4 +8,4 @@ Plutselig sluttet lyden, og han hørte en merkelig sang.
 Ridderen fulgte lyden gjennom skogen og kom til en liten lysning.
 Plutselig den lyden går budd nå han sanger.
 Så han går ut av huset til å følge den lyden i skogen.
-
+hiiiiiiiiiiiiiiiiiiiiii
