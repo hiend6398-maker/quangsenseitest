@@ -8,4 +8,4 @@ Plutselig sluttet lyden, og han hørte en merkelig sang
 Ridderen fulgte lyden gjennom skogen og kom til en liten lysning
 Plutselig den lyden går budd nå han sanger
 hei jeg heter Quang-sensei
-quang sensei aizen no suke
+quang sensei aizen no suke 
